@@ -6,8 +6,6 @@
 - 🤔 I’m looking for help with Programming
 - 💬 Ask me about what you want
 - 📫 How to reach me: 
-Instagram: xflapxflap
 Email: marcelkroschke@gmail.com
-Telegram: xFlapxFlap
 - 😄 Pronouns: He
 - ⚡ Fun fact: ...
