@@ -7,7 +7,7 @@
 - 💬 Ask me about what you want
 - 📫 How to reach me: 
 Instagram: xflapxflap
-Email: Marcelkroschke@gmail.com
+Email: marcelkroschke@gmail.com
 Telegram: xFlapxFlap
 - 😄 Pronouns: He
 - ⚡ Fun fact: ...
